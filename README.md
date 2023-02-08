@@ -16,7 +16,8 @@ M.A. History of Law
 
 B.S. Business and Information Technology
 
+23 years professor of English, CSU, Taiwan.
+
 10 years in both government and business organizations,
 	information technology and logistics (U.S.)
 	
-23 years professor of English, CSU, Taiwan.
