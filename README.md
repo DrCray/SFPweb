@@ -4,8 +4,9 @@ Phonics Homeschooling Pre-K Kindergarten First Grade
 As soon as your child starts walking around and naming objects, it's time to start on Phonics. Start with letters as described in the Phonics Lesson Book.
 
 This is how I taught my children to read before they started Kindergarten.
+## Babbit Phonics by Dr. Ray
 
-About me: Dr. Ray
+About the Author:
 
 Carl Ray, Educational Doctorate, U.S. citizen
 
