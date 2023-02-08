@@ -6,6 +6,7 @@ As soon as your child starts walking around and naming objects, it's time to sta
 This is how I taught my children to read before they started Kindergarten.
 
 About me: Dr. Ray
+
 Carl Ray, Educational Doctorate, U.S. citizen
 Ed.D. Human Resource Development (Workforce Training)
 M.A. History of Law
