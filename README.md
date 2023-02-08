@@ -8,10 +8,14 @@ This is how I taught my children to read before they started Kindergarten.
 About me: Dr. Ray
 
 Carl Ray, Educational Doctorate, U.S. citizen
+
 Ed.D. Human Resource Development (Workforce Training)
+
 M.A. History of Law
+
 B.S. Business and Information Technology
 
 10 years in both government and business organizations,
 	information technology and logistics (U.S.)
+	
 23 years professor of English, CSU, Taiwan.
